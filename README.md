@@ -5,7 +5,7 @@ In the vast and diverse fabric of India’s caste system, few communities have e
 
 This is not a new identity. It is not an invented status or a modern social claim. The Kalar caste, historically, culturally, and genealogically, is rooted in the Kshatriya ethos, with powerful ancestral links to the illustrious Kalachuri dynasty, one of central India’s most influential ruling houses.
 
-Kalar/Kalal as Kshatriyas: A Truth Beyond Occupation
+<a href="https://yuktoria.com/">Kalar/Kalal</a>as Kshatriyas: A Truth Beyond Occupation
 The core of the Kalar identity lies in their Kshatriya dharma—a commitment to valor, protection of society, governance, and upholding justice. While caste in India is often mistakenly equated with one’s ancestral occupation, varna was traditionally based on qualities (guna) and actions (karma). In that light, the Kalars have always embodied the Kshatriya role, historically serving as landholders, warriors, estate holders, local rulers, and protectors of their people in regions like Uttar Pradesh, Bihar, Madhya Pradesh, and Chhattisgarh.
 
 Many members of the community served as feudatories under larger kingdoms or ran independent territories, upholding law and order in their regions. Oral traditions, community records, and regional histories consistently highlight the martial and administrative roles played by Kalar families across centuries.
@@ -31,5 +31,9 @@ Today, however, the Kalar/Kalal community is actively reclaiming its Kshatriya i
 
 A Community Rooted in Courage and Governance
 To describe the Kalars merely in occupational terms is to erase centuries of history. This community’s identity is not defined by trade, but by duty, bravery, and lineage. The Kalar/Kalal caste is a Kshatriya caste, in heritage, in culture, and in recorded history. Their affiliation with the Kalachuri dynasty is more than a historical footnote—it is a living testament to their royal past.
+
+Reference:- https://yuktoria.com/kalar-caste-history-tracing-the-ancient-kshatriya-lineage-in-modern-india/                                      
+https://yuktoria.com/the-hidden-truth-about-kalchuri-vansh-from-kshatriya-roots-to-modern-day-kalar-caste/
+https://yuktoria.com/kalar-kalal-caste-warriors-of-the-kalchuri-legacy/
 
 In reclaiming their identity, the Kalar community is not inventing a narrative—it is restoring one. And in doing so, they are ensuring that future generations know them not through the distorted lens of colonial record-keeping, but through the truth of their ancestry: as Kshatriyas of the Kalachuri bloodline, defenders of dharma, and rightful heirs to India's rich warrior traditions.
